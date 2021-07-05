@@ -1,2 +1,0 @@
-# SyromyatnikovRecipe
-22222
